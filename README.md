@@ -12,3 +12,6 @@ Estamos ansiosos para conhecer você e compartilhar conhecimentos e experiência
 
 Links uteis: [Colangiocarcinoma](https://pt.wikipedia.org/wiki/Colangiocarcinoma)
 
+![image](https://github.com/AstridNielsen-lab/hemopatias/assets/32886080/90c32393-b69f-4cc2-94b1-f56291783d46)
+
+
