@@ -5,7 +5,7 @@ Nosso grupo é um espaço dedicado à troca de ideias, discussões enriquecedora
 
 Junte-se a nós e faça parte de nossa comunidade de pesquisadores comprometidos com a busca do conhecimento e com o impacto positivo na saúde, agricultura, meio ambiente e diversas outras áreas. Estamos sempre em busca de novas perspectivas e talentos que possam contribuir para o avanço da biotecnologia.
 
-Para fazer parte do nosso grupo de pesquisa, acesse o seguinte link: [Engenharia Biotecnológica](https://chat.whatsapp.com/EpXVaaIbRiXHK0uubbVu16)
+Para fazer parte do nosso grupo de pesquisa, acesse [Engenharia Biotecnológica](https://chat.whatsapp.com/EpXVaaIbRiXHK0uubbVu16)
 Venha fazer parte dessa jornada emocionante e descobrir as infinitas possibilidades da biotecnologia!
 
 Estamos ansiosos para conhecer você e compartilhar conhecimentos e experiências nesse campo fascinante. Seja bem-vindo ao nosso grupo de Biotecnologia!
