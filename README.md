@@ -14,4 +14,12 @@ Links uteis: [Colangiocarcinoma](https://pt.wikipedia.org/wiki/Colangiocarcinoma
 
 ![image](https://github.com/AstridNielsen-lab/hemopatias/assets/32886080/90c32393-b69f-4cc2-94b1-f56291783d46)
 
+![image](https://github.com/AstridNielsen-lab/hemopatias/assets/32886080/e764bc92-24aa-4fb4-85c1-e427bf652d7e)
+
+![image](https://github.com/AstridNielsen-lab/hemopatias/assets/32886080/261c561f-aa2f-4959-bc08-cab3118eab7c)
+
+![image](https://github.com/AstridNielsen-lab/hemopatias/assets/32886080/949ff6a7-ee8e-4017-b10d-d23e279280ba)
+
+
+
 
