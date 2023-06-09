@@ -10,3 +10,5 @@ Venha fazer parte dessa jornada emocionante e descobrir as infinitas possibilida
 
 Estamos ansiosos para conhecer você e compartilhar conhecimentos e experiências nesse campo fascinante. Seja bem-vindo ao nosso grupo de Biotecnologia!
 
+Links uteis: [Colangiocarcinoma](https://pt.wikipedia.org/wiki/Colangiocarcinoma)
+
